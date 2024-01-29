@@ -1,0 +1,2 @@
+# lore.dali.mp
+Crédito 
